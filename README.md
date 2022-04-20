@@ -15,3 +15,7 @@ declarer etre en contrat d'alternance a la date du 23 aout mais profiter de l'ai
 https://www.centre-inffo.fr/site-droit-formation/aides-a-lalternance-conclure-un-contrat-avant-le-30-juin-2022-pour-commencer-son-execution-apres-cette-date
 
 la verité
+
+
+----------------------------------------------
+https://www.campusfrance.org/fr/candidature-etudiant-non-europeen-resident-pays-UE
